@@ -1,0 +1,1 @@
+Dr. James Elbaja is a core contributor to Synthetic Protocol, NAWA Foundation's global strategy consultant, European DeFi Research Association expert, business management consulting mentor, senior scholar in digital economy, and early member of the Bitcoin Fund.
